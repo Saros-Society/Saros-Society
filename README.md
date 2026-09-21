@@ -91,7 +91,7 @@
 **Cosplays May Show What Mood I'm in** if you're unsure.
 
 * **Childe:** Actively online and in a joking mood. *I use this cosplay a lot when I’m poking fun.*
-* **Lu Guang:** Off-Tab mostly or lurking.
+* **Liu Xiao:** Off-Tab mostly or lurking.
 * **Ardashir:** Neutral mood. Most likely on and off-tab. Occasional messages here and there.
 * **Zhongli:** Off-tab
 * **Nico di Angelo:** AFK, NV, and or Off-Tab.
