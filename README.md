@@ -14,7 +14,8 @@
 <p align=“center”>
     
     “Yes, Mother.” - Vein
-    “Why is he here?” - Li Tianchen
+    “That was delicious, now I got to piss.” - Vein
+    “Seriously, why is he here?” - Li Tianchen
     
 </p>
 
