@@ -29,7 +29,7 @@
 * **Minors IWC/IWEC as I'm 18+**
 * *W2I usually unless stated otherwise*
 * **Don't associate me with who I sit with.** *I'm usually alone most of the time. If I'm with someone, I'm probably not feeling well or for once being sociable.*
-* **I'm usually NV.** I'm sorry. I don't do well with socializing. Yes, I know this is a Social game. I just like making ponies.
+* **I'm usually NV.** I'm sorry. I don't do well with socializing and I’m usually off-tab. Yes, I know this is a Social game. I just like making ponies.
 * **You can sit with me if you want.** just know I won't likely interact back.
 * **Please do not Copy or INSPO off of my ponies.** **Posting or distributing my photos of my ponies or photos of my ponies is prohibited (unless close friends)** *I will hide people who copy/Inspo hard if you don't ask for permission. I know it's just pixels, but just be unique god damn, or ask me, I'll more than likely say yes.*
 * **Do not drag me into drama that isn't about me. It's not mine to begin with. That being said,** ***do not start drama with me*** **that is about my friends or oomf-in-laws. I'm not them, they're responsible for their own behaviors. I'm also not responsible for their actions.**
@@ -47,7 +47,7 @@
 * I heavily Kin Nico di Angelo, Dan Heng, Ardashir, and Liu Xiao.
 <p align=center>
     
-    Liu Xiao has the same personality type as me and we almost share birthdays. His being December 10th, and mine being December 11th.
+    Liu Xiao has the same personality type as me (INFJ) and we almost share birthdays. His being December 10th, and mine being December 11th.
     
 * I also kin Zhongli and Dan Feng.
 * **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
