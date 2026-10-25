@@ -1,4 +1,4 @@
-##  ✩ "Like moth to a flame-"
+##  ✩ "Stop we can't get closer”
 
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=˚♡˚₊‧⁺˖&color=262635">
@@ -9,7 +9,7 @@
   <img src="https://github.com/user-attachments/assets/c65cf413-bce3-43d4-9457-ce72a419a417" />
 
 
-> “Moth to your flame, your flame.”
+> “We can't get closer”
 
 <p align=“center”>
     
